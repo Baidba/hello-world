@@ -1,5 +1,2 @@
-# hello-world
-c'est un test
-Bonjour je suis un etre humain
-Bain quoi dire
-alor merci
+Premierement tu doit connaitre des droit
+Deuxiement du doit les conservers
